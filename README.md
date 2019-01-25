@@ -1,0 +1,2 @@
+# sinosoft
+for newchinalife
